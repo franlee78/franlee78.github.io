@@ -1,4 +1,4 @@
-# franlee78.github.io
+# Computer Scientist
 
 ### Education
 
